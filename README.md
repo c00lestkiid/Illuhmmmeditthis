@@ -1,3 +1,4 @@
 <img width="500" height="920" alt="image" src="https://github.com/user-attachments/assets/9c7f816b-eeb2-4e06-8373-eb33c67c36e2" />
 
 this is me is you even care lowkey burps
+<img width="667" height="703" alt="image" src="https://github.com/user-attachments/assets/b73a1f0b-4f27-4e95-b997-b24e40e7069d" />
